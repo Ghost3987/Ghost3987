@@ -3,7 +3,7 @@
 
 <h3 align="center">
   <img src="https://emojis.slackmojis.com/emojis/images/1588315024/8823/hyperkitty.gif" width="25">
-  &nbsp;WELCOME TO MY PROFILE&nbsp;
+  &nbsp;GHOST KING DEAD&nbsp;
   <img src="https://emojis.slackmojis.com/emojis/images/1588315024/8823/hyperkitty.gif" width="25">
 </h3>
 
